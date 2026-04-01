@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @therealabela
-- 👀 I’m interested in Computer
+- 👀 I’m interested in Computers
 - 🫨 Download Abel Tools! (achenkunju.com)
