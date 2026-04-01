@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @therealabela
-- 👀 I’m interested in Computers
-- ⚡ Fun fact: I have no Fun Fact
+- 👀 I’m interested in Computer
+- 🫨 Download Abel Tools! (achenkunju.com)
